@@ -1,2 +1,2 @@
 # hello-world
-keep learning
+keep learning. fighting!
